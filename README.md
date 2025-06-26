@@ -16,3 +16,4 @@ Burada sadece gerçek ve güvenilir bonus veren siteleri bulacaksın.
 1. Linke tıkla  
 2. Kayıt ol veya deneme yap  
 3. Bonusunu hemen kap!
+4. Çekim Talebini Yolla!
